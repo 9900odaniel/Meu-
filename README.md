@@ -1,2 +1,1 @@
-# Meu-
-Meu/mágico
+# Meu-mudo/mágico 
